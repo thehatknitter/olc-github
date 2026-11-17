@@ -57,3 +57,4 @@ When you have more time, make sure to sign up for Github Education to get specia
 ## Questions?
 Email Anna Everett (everetta@utk.edu) or Jian Su (jsu1@utk.edu). 
 
+Workshop participation practice - Sandra at JHU - November 2026
